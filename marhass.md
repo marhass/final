@@ -131,7 +131,7 @@ November 12, 1971
 
 # 26.0
   <aside class="notes">
-    
+    We ached and almost touched that stuff;
   </aside>
 
 # 27.0
