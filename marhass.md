@@ -192,7 +192,7 @@ November 12, 1971
 
 # 38.0
   <aside class="notes">
-    
+    And, measured out with rocket fire,
   </aside>
 
 # 39.0
