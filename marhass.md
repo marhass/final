@@ -252,7 +252,7 @@ November 12, 1971
 
 # 50.0
   <aside class="notes">
-    
+    We're tall, O God,
   </aside>
 
 # 51.0
