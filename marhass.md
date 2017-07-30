@@ -217,7 +217,7 @@ November 12, 1971
 
 # 43.0
   <aside class="notes">
-    
+    And gift him with forever's day?
   </aside>
 
 # 44.0
