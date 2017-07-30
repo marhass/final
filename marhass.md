@@ -147,7 +147,7 @@ November 12, 1971
 
 # 29.0
   <aside class="notes">
-    
+    We would not have to go with them
   </aside>
 
 # 30.0
