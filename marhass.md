@@ -167,12 +167,12 @@ November 12, 1971
 
 # 33.0
   <aside class="notes">
-    
+    that they might keep their land, their home, their hearth,
   </aside>
 
 # 34.0
   <aside class="notes">
-    
+    their flesh and soul.
   </aside>
 
 # 35.0
