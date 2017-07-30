@@ -177,7 +177,7 @@ November 12, 1971
 
 # 35.0
   <aside class="notes">
-    
+    But they, like us, were standing in a hole.
   </aside>
 
 # 36.0
