@@ -104,7 +104,8 @@ November 12, 1971
 
 # 21.0
   <aside class="notes">
-    
+    The fence we walked between the years
+    Did balance us serene.
   </aside>
 
 # 22.0
