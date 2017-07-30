@@ -79,7 +79,7 @@ November 12, 1971
 
 # 
   <aside class="notes">
-    
+    Luckily it's a short poem and it sums up... 
   </aside>
 
 # 
