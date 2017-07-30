@@ -197,7 +197,7 @@ November 12, 1971
 
 # 39.0
   <aside class="notes">
-    
+    At last put Adam's finger forth
   </aside>
 
 # 40.0
