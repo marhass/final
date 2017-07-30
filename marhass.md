@@ -202,7 +202,7 @@ November 12, 1971
 
 # 40.0
   <aside class="notes">
-    
+    As on the Sistine ceiling,
   </aside>
 
 # 41.0
