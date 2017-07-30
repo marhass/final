@@ -24,32 +24,32 @@ November 12, 1971
 
 # 5.0
   <aside class="notes">
-    
+    He said "That book of yours, the Martian Chronicles?" I said "yes."
   </aside>
 
 # 6.0
   <aside class="notes">
-    
+    He said, "on page 92," (laughter) I said "What?" He said "Where you have the moons of Mars rising in the East?"
   </aside>
 
 # 7.0
   <aside class="notes">
-    
+    I said "yes," He said "No." (laughter) (extended laughter) (applause)
   </aside>
 
 # 
   <aside class="notes">
-    
+    So I hit him! (laughter) I'll be damned if I'll be bullied by a boy.
   </aside>
 
 # 
   <aside class="notes">
-    
+    I was hoping that during the last few days
   </aside>
 
 # 
   <aside class="notes">
-    
+    As we got closer to Mars and the dust cleared
   </aside>
 
 # 
