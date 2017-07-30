@@ -257,7 +257,7 @@ November 12, 1971
 
 # 51.0
   <aside class="notes">
-    
+    we're tall!
   </aside>
 
 # 52.0
