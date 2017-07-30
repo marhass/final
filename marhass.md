@@ -69,7 +69,7 @@ November 12, 1971
 
 # 
   <aside class="notes">
-    
+    But I... everytime I get a group of people together and have them trapped in a hall like this, I bring a poem
   </aside>
 
 # 
