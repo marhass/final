@@ -187,7 +187,7 @@ November 12, 1971
 
 # 37.0
   <aside class="notes">
-    
+    Across the void, across the universe and all?
   </aside>
 
 # 38.0
