@@ -107,12 +107,132 @@ November 12, 1971
     
   </aside>
 
-# 
+# 22.0
   <aside class="notes">
     
   </aside>
 
 # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
+  <aside class="notes">
+    
+  </aside>
+  
+  # 
   <aside class="notes">
     
   </aside>
