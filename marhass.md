@@ -84,12 +84,12 @@ November 12, 1971
 
 # 17.0
   <aside class="notes">
-    Why I'm intrigued with what's going on this week out on Mars
+    Some of my feelings on why I love space travel, why I write science fiction
   </aside>
 
 # 18.0
   <aside class="notes">
-    
+    Why I'm intrigued with what's going on this week out on Mars
   </aside>
 
 # 19.0
