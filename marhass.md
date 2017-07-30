@@ -182,7 +182,7 @@ November 12, 1971
 
 # 36.0
   <aside class="notes">
-    
+    O, Thomas, will a race one day stand really tall
   </aside>
 
 # 37.0
