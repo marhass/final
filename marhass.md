@@ -212,7 +212,7 @@ November 12, 1971
 
 # 42.0
   <aside class="notes">
-    
+    To measure man and find him good,
   </aside>
 
 # 43.0
