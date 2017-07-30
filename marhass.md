@@ -37,67 +37,67 @@ November 12, 1971
     I said "yes," He said "No." (laughter) (extended laughter) (applause)
   </aside>
 
-# 
+# 8.0
   <aside class="notes">
     So I hit him! (laughter) I'll be damned if I'll be bullied by a boy.
   </aside>
 
-# 
+# 9.0
   <aside class="notes">
     I was hoping that during the last few days
   </aside>
 
-# 
+# 10.0
   <aside class="notes">
     As we got closer to Mars and the dust cleared
   </aside>
 
-# 
+# 11.0
   <aside class="notes">
     That we see a lot of Martians standing there with huge signs saying _Bradbury was right_ (laughter) (applause)
   </aside>
 
-# 
+# 12.0
   <aside class="notes">
     Or even Clark! (?) (unsure laughter because no one had read his book)
   </aside>
 
-# 
+# 13.0
   <aside class="notes">
     So... in order not to go long today, I'm gonna keep this short, because I'd much rather listen to our scientific friends here today tell us about what's coming up this week
   </aside>
 
-# 
+# 14.0
   <aside class="notes">
     But I... everytime I get a group of people together and have them trapped in a hall like this, I bring a poem
   </aside>
 
-# 
+# 15.0
   <aside class="notes">
     See? And you can't escape me.
   </aside>
 
-# 
+# 16.0
   <aside class="notes">
-    Luckily it's a short poem and it sums up... 
+    Luckily it's a short poem but it sums up... 
   </aside>
 
-# 
+# 17.0
   <aside class="notes">
-    
+    Why I'm intrigued with what's going on this week out on Mars
   </aside>
 
-# 
-  <aside class="notes">
-    
-  </aside>
-
-# 
+# 18.0
   <aside class="notes">
     
   </aside>
 
-# 
+# 19.0
+  <aside class="notes">
+    
+  </aside>
+
+# 20.0
   <aside class="notes">
     
   </aside>
