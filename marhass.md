@@ -19,7 +19,7 @@ November 12, 1971
 
 # 4.0
   <aside class="notes">
-    
+    A ten-year-old boy a few years ago ran up to me and he said "Mr. Bradbury" and I said "yes"
   </aside>
 
 # 5.0
