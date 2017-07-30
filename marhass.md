@@ -99,10 +99,10 @@ November 12, 1971
 
 # 20.0
   <aside class="notes">
-    
+    And if you'll permit, I'll read it to you, it's very very short
   </aside>
 
-# 
+# 21.0
   <aside class="notes">
     
   </aside>
