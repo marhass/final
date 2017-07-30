@@ -121,7 +121,7 @@ November 12, 1971
 
 # 24.0
   <aside class="notes">
-    
+    If we could reach and touch, we said,
   </aside>
 
 # 25.0
