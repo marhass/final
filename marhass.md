@@ -207,7 +207,7 @@ November 12, 1971
 
 # 41.0
   <aside class="notes">
-    
+    And God's hand come down the other way
   </aside>
 
 # 42.0
