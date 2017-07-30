@@ -242,7 +242,7 @@ November 12, 1971
 
 # 48.0
   <aside class="notes">
-    
+    Aching to hear a voice cry back along the universal mall:
   </aside>
 
 # 49.0
