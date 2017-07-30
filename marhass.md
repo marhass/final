@@ -182,158 +182,82 @@ November 12, 1971
     
   </aside>
 
-# 23.0
+# 37.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 38.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 39.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 40.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 41.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 42.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 43.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 44.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 45.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 46.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 47.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 48.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 49.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 50.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 51.0
   <aside class="notes">
     
   </aside>
 
-# 23.0
+# 52.0
   <aside class="notes">
     
   </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
-# 23.0
-  <aside class="notes">
-    
-  </aside>
-
