@@ -126,7 +126,7 @@ November 12, 1971
 
 # 25.0
   <aside class="notes">
-    
+    'Twould teach us not to, never to, be dead.
   </aside>
 
 # 26.0
