@@ -237,7 +237,7 @@ November 12, 1971
 
 # 47.0
   <aside class="notes">
-    
+    Hoping an inch of good is worth a pound of years.
   </aside>
 
 # 48.0
