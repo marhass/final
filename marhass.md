@@ -136,7 +136,7 @@ November 12, 1971
 
 # 27.0
   <aside class="notes">
-    
+    Our reach was never quite enough.
   </aside>
 
 # 28.0
