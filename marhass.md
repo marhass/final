@@ -257,10 +257,10 @@ November 12, 1971
 
 # 51.0
   <aside class="notes">
-    we're tall!
+    we're tall! (applause)
   </aside>
 
 # 52.0
   <aside class="notes">
-    
+    (end)
   </aside>
