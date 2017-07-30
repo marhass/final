@@ -141,7 +141,8 @@ November 12, 1971
 
 # 28.0
   <aside class="notes">
-    
+    If only we had taller been,
+    And touched God's cuff, His hem,
   </aside>
 
 # 29.0
