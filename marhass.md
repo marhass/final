@@ -94,7 +94,7 @@ November 12, 1971
 
 # 19.0
   <aside class="notes">
-    
+    And part of this has my philosophy about space travel in it
   </aside>
 
 # 20.0
