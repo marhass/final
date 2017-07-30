@@ -157,7 +157,7 @@ November 12, 1971
 
 # 31.0
   <aside class="notes">
-    
+    Who, short as us, stood tall as they could stand
   </aside>
 
 # 32.0
