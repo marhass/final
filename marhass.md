@@ -232,7 +232,7 @@ November 12, 1971
 
 # 46.0
   <aside class="notes">
-    
+    I send my rockets forth between my ears,
   </aside>
 
 # 47.0
