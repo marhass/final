@@ -152,7 +152,7 @@ November 12, 1971
 
 # 30.0
   <aside class="notes">
-    
+    Who've gone before,
   </aside>
 
 # 31.0
