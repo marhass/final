@@ -112,127 +112,228 @@ November 12, 1971
     
   </aside>
 
-# 
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
-  
-  # 
+
+# 23.0
   <aside class="notes">
     
   </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
+# 23.0
+  <aside class="notes">
+    
+  </aside>
+
