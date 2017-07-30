@@ -64,7 +64,7 @@ November 12, 1971
 
 # 
   <aside class="notes">
-    
+    So... in order not to go long today, I'm gonna keep this short, because I'd much rather listen to our scientific friends here today tell us about what's coming up this week
   </aside>
 
 # 
