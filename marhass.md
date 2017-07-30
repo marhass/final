@@ -116,7 +116,7 @@ November 12, 1971
 
 # 23.0
   <aside class="notes">
-    
+    We'd reach our hands to touch and almost touch the sky,
   </aside>
 
 # 24.0
