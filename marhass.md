@@ -227,7 +227,7 @@ November 12, 1971
 
 # 45.0
   <aside class="notes">
-    
+    Short man, large dream, 
   </aside>
 
 # 46.0
