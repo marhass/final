@@ -54,7 +54,7 @@ November 12, 1971
 
 # 
   <aside class="notes">
-    
+    That we see a lot of Martians standing there with huge signs saying _Bradbury was right_ (laughter)
   </aside>
 
 # 
