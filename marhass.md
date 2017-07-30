@@ -110,7 +110,8 @@ November 12, 1971
 
 # 22.0
   <aside class="notes">
-    
+    It was a place half in the sky where
+    In the green of leaf and promising of peach
   </aside>
 
 # 23.0
